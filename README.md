@@ -4,6 +4,7 @@ All the links, tools and examples from "Sljedzim Internety Meetup" presented by 
 
 ![image](https://github.com/user-attachments/assets/59835025-33ad-4543-8548-3771fe009481)
 
+[Contact me! Let's stay in touch 👍](https://www.linkedin.com/in/maciej-pop%C5%82awski-44206a191/)  
 
 
 ## Text Generation
