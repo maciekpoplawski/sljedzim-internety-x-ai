@@ -55,9 +55,9 @@ https://www.instagram.com/eastdesigndays/
 
 
 ## Best youtube channels
-https://www.youtube.com/@promptmuse
-https://www.youtube.com/@Aitrepreneur
-https://www.youtube.com/@NerdyRodent
-https://www.youtube.com/@AllAboutAI
-https://www.youtube.com/@DrAlanDThompson
-https://www.youtube.com/@jamesbriggs
+https://www.youtube.com/@promptmuse  
+https://www.youtube.com/@Aitrepreneur  
+https://www.youtube.com/@NerdyRodent  
+https://www.youtube.com/@AllAboutAI  
+https://www.youtube.com/@DrAlanDThompson  
+https://www.youtube.com/@jamesbriggs  
