@@ -52,3 +52,12 @@ https://www.instagram.com/eastdesigndays/
 ## 3D Modeling and Animation
 
 [Anything World](https://anything.world/)
+
+
+## Best youtube channels
+https://www.youtube.com/@promptmuse
+https://www.youtube.com/@Aitrepreneur
+https://www.youtube.com/@NerdyRodent
+https://www.youtube.com/@AllAboutAI
+https://www.youtube.com/@DrAlanDThompson
+https://www.youtube.com/@jamesbriggs
